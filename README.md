@@ -30,7 +30,7 @@ Here's a bit about me:
 
 ## Let's Connect!
 
-- [LinkedIn](www.linkedin.com/in/teophelus-nehemia-4177a925b)
+- LinkedIn: (www.linkedin.com/in/teophelus-nehemia-4177a925b)
 - Email: [nteophelua@gmail.com]
 
 Feel free to reach out and connect! I'm always open to new opportunities and collaborations. 😊
